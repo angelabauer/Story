@@ -1,0 +1,1 @@
+It was the spring of hope, it was the winter of despair.
